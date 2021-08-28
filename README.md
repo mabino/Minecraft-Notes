@@ -1,1 +1,1 @@
-# Minecraft-Notes
+# Minecraft Notes
